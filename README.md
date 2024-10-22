@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @Jeevareddy03
 - 👀 I’m interested in Content Creation, Designing and Photography
 - 🌱 I’m currently learning UI&UX 
-- 💞️ I’m looking to collaborate on 
 - 📫 How to reach me Linkedin: www.linkedin.com/in/jeeva-a-52114725a
 -    Whatsapp: https://whatsapp.com/channel/0029VaikQe9FSAt37MkRgy08
 -    Instagram: https://www.instagram.com/thanglish_memes_03/profilecard/?igsh=MTR0aDFzbHBsenRsMQ==
-- ⚡ Fun fact: Shy to say that I'm always shy..
+- ⚡ Fun fact: Loading...
