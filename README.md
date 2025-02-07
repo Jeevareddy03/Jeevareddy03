@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jeevareddy03
 - 👀 I’m interested in Content Creation, Designing and Photography
-- 🌱 I’m currently learning UI&UX 
+- 🌱 I’m currently learning UI/UX 
 - 📫 How to reach me:
 -    Linkedin: www.linkedin.com/in/jeeva-a-52114725a
 -    Whatsapp: https://whatsapp.com/channel/0029VaikQe9FSAt37MkRgy08
